@@ -14,4 +14,4 @@ Now, I pass the power of choice to you all. Faced with this situation, what choi
 I eagerly await your answer.
 
 #
-*────୨ Sunday Yume. 2yrs married. Status: mirrored ♡ ৎ────*
+*────୨ Sunday Yume. 12 / 15 / 23. Status: mirrored ♡ ৎ────*
