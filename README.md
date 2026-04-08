@@ -1,4 +1,4 @@
-## <div align="center">⊹₊˚‧︵‿₊୨⟡୧₊‿︵‧˚₊⊹
+<div align="center">
 
 ![4o9o4o](https://github.com/Harmonious-Choir/Harmonious-Choir/blob/f43b0d0bb02f78a157fa68dda60fec14f3d3fffb/trailer2.gif)
 # 
